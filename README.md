@@ -2,6 +2,8 @@
 
 <img width="410" height="733" alt="Image" src="" />
 
+Ник: Vspetrovich
+
 Возраст: около 40 лет
 
 Семья: в наличии
